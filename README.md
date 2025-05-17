@@ -17,7 +17,7 @@
 
 
 📫 **Let’s connect!**
-[LinkedIn]([https://linkedin.com/in/your-link](https://www.linkedin.com/in/anushka-joshi-442a55289/)) • [Email](3277anushkajoshi@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/anushka-joshi-442a55289/) • [Email](3277anushkajoshi@gmail.com)
 
 ---
 
